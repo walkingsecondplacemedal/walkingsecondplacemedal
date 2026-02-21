@@ -12,8 +12,9 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/canibalismo">rentry (new)</a> . . . <a href="https://averylings.straw.page">Strawpage</a> 
-</p>
+<a href="https://rentry.co/canibalismo">rentry (new)</a> . . . <a href="https://averylings.straw.page">Strawpage (old)</a> . . .
+ <a href="https://walkingsecondplacemedal.atabook.org">Atabook(new!)</a> 
+</p> 
 <p align="center">
  <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#4F2C6D}{\textsf{ ᩧ 𓈒clemmie, or clem..     ྀི   ͜𓈒 ࣪   ⠀check the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
    <br> $\color{#4F2C6D}{\textsf{ C!quackity enjoyer. wss get outtt pls }}$ <br> 
