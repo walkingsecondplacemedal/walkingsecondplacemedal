@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/canibalismo">rentry (new)</a> . . . <a href="https://averylings.straw.page">Strawpage (avery themed, renewed)</a> . . .
+<a href="https://rentry.co/canibalismo">rentry (new)</a> . . . <a href="https://averylings.straw.page">Strawpage(Renewed)</a> . . .
  <a href="https://walkingsecondplacemedal.atabook.org">Atabook(new!)</a> 
 </p> 
 <p align="center">
