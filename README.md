@@ -1,7 +1,6 @@
 <p align="center">
  <br> <img src="https://files.catbox.moe/vauf8v.webp" alt=":D" style="height: 20px; width: 20px" />   $\color{#6A65B6}{\textsf{ Yeah, I'm the queen of the frauds,}}$ $\color{#D2244A}{\textsf{You never knew who I was}}$ $\color{#6A65B6}{\textsf{I wanna hold you captive forever in this fog!! }}$ <br> 
-  $\color{#D2244A}{\textsf{I wish the hive would go away,}}$ $\color{#6A65B6}{\textsf{I just want to bathe in this buffet}}$  <br> 
-  $\color{#D2244A}{\textsf{I just want to play pretend with you all day..}}$ 
+  
 <p align="center"> 
 <img src="https://i.postimg.cc/MpFJpNzm/1082-sin-titulo-20260419103828.jpg" alt="divider"  /> 
   </p>
@@ -24,4 +23,5 @@
   </p>
   
 <p align="center">
- <br>   $\color{#6A65B6}{\textsf{Ah, yes, good etiquette demands. }}$ $\color{#D2244A}{\textsf{I remain soft and accessible in the face of my own ending,}}$ $\color{#6A65B6}{\textsf{So I will try to be discreet}}$ <br> $\color{#D2244A}{\textsf{Through my full-blown implosion}}$ $\color{#6A65B6}{\textsf {I'll stay golden and retreat!!}}$ <img src="https://files.catbox.moe/v9ki37.webp" alt=":D" style="height: 20px; width: 20px" />  <br> 
+ <br>   $\color{#D2244A}{\textsf{I wish the hive would go away,}}$ $\color{#6A65B6}{\textsf{I just want to bathe in this buffet}}$  <br> 
+  $\color{#D2244A}{\textsf{I just want to play pretend with you all day..}}$  <img src="https://files.catbox.moe/v9ki37.webp" alt=":D" style="height: 20px; width: 20px" />  <br> 
