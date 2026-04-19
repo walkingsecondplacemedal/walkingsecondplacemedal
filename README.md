@@ -3,7 +3,7 @@
   </p> 
   
 <p align="center">
- <br> <img src="https://files.catbox.moe/vauf8v.webp" alt=":D" style="height: 20px; width: 20px" />   $\color{#6A65B6}{\textsf{ Yeah, I'm the queen of the frauds,}}$ $\color{#E77A8F}{\textsf{You never knew who I was}}$ $\color{#6A65B6}{\textsf{I wanna hold you captive forever in this fog!! }}$ <br> 
+ <br> <img src="https://files.catbox.moe/d4yn4b.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#6A65B6}{\textsf{ Yeah, I'm the queen of the frauds,}}$ $\color{#E77A8F}{\textsf{You never knew who I was}}$ $\color{#6A65B6}{\textsf{I wanna hold you captive forever in this fog!! }}$ <br> 
   
   <p align="center"> 
 𓐇   ᣟ݂ ׁׅ֒  ܔ <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?label=Princess%20%F0%9F%9C%B2&color=E77A8F&labelColor=f0f0f0"/></a>   ͜͝   <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?label=Buffet%20%E2%97%AF%F0%93%87%8B&color=6A65B6&labelColor=f0f0f0"/></a>
@@ -21,7 +21,7 @@
   
 <p align="center">
  <br>   $\color{#E77A8F}{\textsf{I wish the hive would go away,}}$ $\color{#6A65B6}{\textsf{I just want to bathe in this buffet}}$  <br> 
-  $\color{#E77A8F}{\textsf{I just want to play pretend with you all day..}}$  <img src="https://files.catbox.moe/v9ki37.webp" alt=":D" style="height: 20px; width: 20px" />  <br> 
+  $\color{#E77A8F}{\textsf{I just want to play pretend with you all day..}}$  <img src="https://files.catbox.moe/kszxmp.gifv" alt=":D" style="height: 20px; width: 20px" />  <br> 
  
   <p align="center"> 
 <img src="https://i.postimg.cc/MpFJpNzm/1082-sin-titulo-20260419103828.jpg" alt="divider"  /> 
