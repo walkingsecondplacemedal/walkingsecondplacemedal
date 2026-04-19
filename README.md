@@ -21,7 +21,7 @@
   
 <p align="center">
  <br>   $\color{#E77A8F}{\textsf{I wish the hive would go away,}}$ $\color{#6A65B6}{\textsf{I just want to bathe in this buffet}}$  <br> 
-  $\color{#E77A8F}{\textsf{I just want to play pretend with you all day..}}$  <img src="https://files.catbox.moe/kszxmp.gifv" alt=":D" style="height: 20px; width: 20px" />  <br> 
+  $\color{#E77A8F}{\textsf{I just want to play pretend with you all day..}}$  <img src="https://i.postimg.cc/t49XrkGC/IMG-3547.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
  
   <p align="center"> 
 <img src="https://i.postimg.cc/MpFJpNzm/1082-sin-titulo-20260419103828.jpg" alt="divider"  /> 
