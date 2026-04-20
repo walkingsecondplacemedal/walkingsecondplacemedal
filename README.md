@@ -16,7 +16,7 @@
  <a href="https://walkingsecondplacemedal.atabook.org">Atabook</a> 
 </p> 
 <p align="center">
- <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#4F2C6D}{\textsf{ ᩧ 𓈒clemmie, or clem..     ྀི   ͜𓈒 ࣪  ⠀check the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
+ 
    <br> $\color{#4F2C6D}{\textsf{ ︶⊹︶︶୨୧︶︶⊹︶ }}$ <br> 
   
 <p align="center">
