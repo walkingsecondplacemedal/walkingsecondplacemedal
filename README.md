@@ -12,12 +12,12 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/canibalismo">rentry </a> . . . <a href="https://averylings.straw.page">Strawpage </a> . . .
+<a href="https://rentry.co/canibalismo">rentry </a> 𓏲ּ𝄢 <a href="https://averylings.straw.page">Strawpage </a> 𓏲ּ𝄢
  <a href="https://walkingsecondplacemedal.atabook.org">Atabook</a> 
 </p> 
 <p align="center">
- <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#4F2C6D}{\textsf{ ᩧ 𓈒clemmie, or clem..     ྀི   ͜𓈒 ࣪   ⠀check the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
-   <br> $\color{#4F2C6D}{\textsf{ C!quackity enjoyer. wss get outtt pls }}$ <br> 
+ <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#4F2C6D}{\textsf{ ᩧ 𓈒clemmie, or clem..     ྀི   ͜𓈒 ࣪  ⠀check the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
+   <br> $\color{#4F2C6D}{\textsf{ ︶⊹︶︶୨୧︶︶⊹︶ }}$ <br> 
   
 <p align="center">
  <br>   $\color{#E77A8F}{\textsf{I wish the hive would go away,}}$ $\color{#6A65B6}{\textsf{I just want to bathe in this buffet}}$  <br> 
