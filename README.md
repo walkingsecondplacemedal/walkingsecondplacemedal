@@ -15,8 +15,7 @@
 <a href="https://rentry.co/canibalismo">rentry </a> 𓏲ּ𝄢 <a href="https://averylings.straw.page">Strawpage </a> 𓏲ּ𝄢
  <a href="https://walkingsecondplacemedal.atabook.org">Atabook</a> 
 </p> 
-<p align="center">
- 
+<p align="center"> 
    <br> $\color{#4F2C6D}{\textsf{ ︶⊹︶︶୨୧︶︶⊹︶ }}$ <br> 
   
 <p align="center">
