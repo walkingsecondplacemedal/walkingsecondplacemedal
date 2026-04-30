@@ -1,14 +1,14 @@
 <p align="center"> 
-<img src="https://i.postimg.cc/MpFJpNzm/1082-sin-titulo-20260419103828.jpg" alt="divider"  /> 
+<img src="https://i.postimg.cc/ydGxMvQ4/IMG-3792.png" alt="divider"  /> 
   </p> 
   
 <p align="center">
- <br> <img src="https://files.catbox.moe/d4yn4b.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#6A65B6}{\textsf{ Yeah, I'm the queen of the frauds,}}$ $\color{#E77A8F}{\textsf{You never knew who I was}}$ $\color{#6A65B6}{\textsf{I wanna hold you captive forever in this fog!! }}$ <br> 
+ <br> <img src="https://i.postimg.cc/J0c2vdxp/IMG-3805.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{black}{\textsf{ You would not believe,}}$ $\color{black}{\textsf{she looks like death}}$ $\color{black}{\textsf{Fucked in the head, }}$ <br> 
   
   <p align="center"> 
 𓐇   ᣟ݂ ׁׅ֒  ܔ <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?label=Princess%20%F0%9F%9C%B2&color=E77A8F&labelColor=f0f0f0"/></a>   ͜͝   <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?label=Buffet%20%E2%97%AF%F0%93%87%8B&color=6A65B6&labelColor=f0f0f0"/></a>
 <p align="center">  
-  <img src="https://i.postimg.cc/FFBRwWLx/1084-sin-titulo-20260419102916.jpg" alt="pls dont leave" style="height: 500px; width: 700px" />
+  <img src="https://i.postimg.cc/brbnL7yy/1104-sin-titulo-20260429222926.png" alt="pls dont leave" style="height: 500px; width: 400px" />
 </p>
 
 <p align="center">
@@ -19,9 +19,10 @@
    <br> $\color{#4F2C6D}{\textsf{ ︶⊹︶︶୨୧︶︶⊹︶ }}$ <br> 
   
 <p align="center">
- <br>   $\color{#E77A8F}{\textsf{I wish the hive would go away,}}$ $\color{#6A65B6}{\textsf{I just want to bathe in this buffet}}$  <br> 
-  $\color{#E77A8F}{\textsf{I just want to play pretend with you all day..}}$  <img src="https://i.postimg.cc/t49XrkGC/IMG-3547.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
+ <br>   $\color{black}{\textsf{I want to be her friend.}}$
+  <p align="center">
+  $\color{black}{\textsf{Dead bitches recognize..}}$ $\color{black}{\textsf{Dead bitches recognize each other,}}$  <img src="https://i.postimg.cc/8PG84L4b/IMG-3804.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
  
   <p align="center"> 
-<img src="https://i.postimg.cc/MpFJpNzm/1082-sin-titulo-20260419103828.jpg" alt="divider"  /> 
+<img src="https://i.postimg.cc/vZyr2Zxt/1104-sin-titulo-20260429222056.png" alt="divider"  /> 
   </p> 
