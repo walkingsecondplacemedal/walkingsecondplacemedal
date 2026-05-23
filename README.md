@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/canibalismo">rentry </a> ㅤ𓈒 <a href="https://averylings.straw.page">Strawpage </a>  ㅤㅤㅤㅤ
+<a href="https://rentry.co/canibalismo">rentry </a> ㅤ𓈒 <a href="https://averylings.straw.page">Strawpage </a>  ㅤ𓈒  ㅤㅤㅤㅤ
  <a href="https://walkingsecondplacemedal.atabook.org">Atabook</a> 
 </p> 
 <p align="center"> 
