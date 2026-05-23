@@ -15,7 +15,7 @@
    <br> $\color{#4F2C6D}{\textsf{ ───────── ︶⊹︶︶୨୧︶︶⊹︶ ───────── }}$ <br> 
   
 <p align="center">
- <br>   $\color{black}{\textsf{I want to be her friend.}}$
+ <br>   $\color{black}{\textsf{slimeknigjt isccanon}}$
   <p align="center">
-  $\color{black}{\textsf{Dead bitches recognize..}}$ $\color{black}{\textsf{Dead bitches recognize each other,}}$  <img src="https://i.postimg.cc/8PG84L4b/IMG-3804.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
+  $\color{black}{\textsf{please dont think you}}$ $\color{black}{\textsf{failed, Avery.}}$ 
  
