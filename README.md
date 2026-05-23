@@ -1,14 +1,10 @@
-<p align="center"> 
-<img src="https://i.postimg.cc/ydGxMvQ4/IMG-3792.png" alt="divider"  /> 
-  </p> 
-  
-<p align="center">
- <br> <img src="https://i.postimg.cc/J0c2vdxp/IMG-3805.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{black}{\textsf{ You would not believe,}}$ $\color{black}{\textsf{she looks like death}}$ $\color{black}{\textsf{Fucked in the head, }}$ <br> 
+
   
   <p align="center"> 
 𓐇     ࿐ ༢⠀<a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?label=Lovers%20%E2%99%A1%CC%B5&color=000000&labelColor=dddddd"/></a>  ͜͝︵ֺ︵ ⠀⠀⠀︶⠀  <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?label=WASTEISOLATION&color=c9c9c9&labelColor=0f0f0f"/></a> ⠀ ̣̣̣ ͜𓏫
 <p align="center">  
-  <img src="https://i.postimg.cc/brbnL7yy/1104-sin-titulo-20260429222926.png" alt="pls dont leave" style="height: 500px; width: 400px" />
+  <img src="https://i.postimg.cc/t4FRZ3C8/1130-sin-titulo-20260522203119.png" alt="keep going foward" style="height: 500px; width: 50
+    0px" />
 </p>
 
 <p align="center">
@@ -23,6 +19,3 @@
   <p align="center">
   $\color{black}{\textsf{Dead bitches recognize..}}$ $\color{black}{\textsf{Dead bitches recognize each other,}}$  <img src="https://i.postimg.cc/8PG84L4b/IMG-3804.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
  
-  <p align="center"> 
-<img src="https://i.postimg.cc/vZyr2Zxt/1104-sin-titulo-20260429222056.png" alt="divider"  /> 
-  </p> 
