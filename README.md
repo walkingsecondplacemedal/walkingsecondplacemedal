@@ -8,7 +8,7 @@
  <a href="https://walkingsecondplacemedal.atabook.org">Atabook</a>     ᜴⠀  
 </p> 
 <p align="center"> 
-   <br> $\color{#4F2C6D}{\textsf{ ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶ }}$ <br> 
+   <br> $\color{white}{\textsf{ turn on light mode, bro }}$ <br> 
   
 <p align="center">
  <br>   $\color{black}{\textsf{hi i wont do any deco}}$
