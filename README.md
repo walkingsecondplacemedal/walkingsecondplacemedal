@@ -4,7 +4,7 @@
 
 
 <p align="center">
-⠀  𐔌 ֺ  <a href="https://rentry.co/canibalismo">rentry </a>   ── ⟢ <a href="https://averylings.straw.page">Strawpage </a>   ── ⟢ㅤ𓈒  ㅤㅤㅤㅤ
+⠀  𐔌 ֺ  <a href="https://fluffle.cc/canibalismo">fluffle </a>   ── ⟢ <a href="https://averylings.straw.page">Strawpage </a>   ── ⟢ㅤ𓈒  ㅤㅤㅤㅤ
  <a href="https://walkingsecondplacemedal.atabook.org">Atabook</a>     ᜴⠀  
 </p> 
 <p align="center"> 
